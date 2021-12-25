@@ -1,0 +1,2 @@
+# badut
+Aku hanyalah badutmu
